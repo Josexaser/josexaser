@@ -1,4 +1,4 @@
-# Hola, soy José 👨‍💻
+# Hola, soy José 🏴‍☠️ 
 **Developer Junior** 🏴‍☠️
 
 
